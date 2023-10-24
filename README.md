@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zakaraka123
+- 👀 I’m interested in Learning  and improving my coding skills
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on long term projects
+- 📫 Azakariyea3@gmail.com
